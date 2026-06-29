@@ -1,4 +1,4 @@
-# 
+# Oficial Crawl4AI preajustes. Con IA explicable y razonamiento automatizado — optimizado para el máximo rendimiento y eficiencia.
 
 
 
